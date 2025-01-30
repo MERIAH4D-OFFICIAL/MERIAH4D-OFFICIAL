@@ -23,4 +23,4 @@ MERIAH4D adalah situs daftar akun pro terbaik se-asia. Dilengkapi dengan RTP MER
 
 ![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=yourusername&layout=compact)
 
-![GIF](https://inigambarku.com/PENASLOT/gif-bonus.gif)
+![GIF]([https://inigambarku.com/PENASLOT/gif-bonus.gif](https://inigambarku.com/MERIAH4D/agenslotmeriah4d.gif))

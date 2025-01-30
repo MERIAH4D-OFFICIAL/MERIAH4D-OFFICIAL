@@ -7,9 +7,9 @@ MERIAH4D adalah situs daftar akun pro terbaik se-asia. Dilengkapi dengan RTP MER
 - `✅ Bonus Rollingan dan Refferal tanpa batas`
 
 ## 🌐 Media Sosial
-  [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=flat&logo=instagram&logoColor=white)](https://www.instagram.com/username) [![WhatsApp](https://img.shields.io/badge/WhatsApp-25D366?style=flat&logo=whatsapp&logoColor=white)](https://api.whatsapp.com/send/?phone=6283153367054&text&type=phone_number&app_absent=0) 
+  [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=flat&logo=instagram&logoColor=white)](https://www.instagram.com/username) [![WhatsApp](https://img.shields.io/badge/WhatsApp-25D366?style=flat&logo=whatsapp&logoColor=white)](https://api.whatsapp.com/send/?phone=6283153367054&text&type=phone_number&app_absent=0) [![Discord](https://img.shields.io/badge/Discord-7289DA?style=flat&logo=discord&logoColor=white)](https://discord.com/users/) 
 
-[![Facebook](https://img.shields.io/badge/Facebook-1877F2?style=flat&logo=facebook&logoColor=white)](https://www.facebook.com/groups/slotmudahjackpot/) [![Telegram](https://img.shields.io/badge/Telegram-0088CC?style=flat&logo=telegram&logoColor=white)](https://t.ly/virallllll) [![Discord](https://img.shields.io/badge/Discord-7289DA?style=flat&logo=discord&logoColor=white)](https://discord.com/users/) [![Pinterest](https://img.shields.io/badge/Pinterest-E60023?style=flat&logo=pinterest&logoColor=white)](https://www.pinterest.com/)
+[![Facebook](https://img.shields.io/badge/Facebook-1877F2?style=flat&logo=facebook&logoColor=white)](https://www.facebook.com/groups/slotmudahjackpot/) [![Telegram](https://img.shields.io/badge/Telegram-0088CC?style=flat&logo=telegram&logoColor=white)](https://t.ly/virallllll) [![Pinterest](https://img.shields.io/badge/Pinterest-E60023?style=flat&logo=pinterest&logoColor=white)](https://www.pinterest.com/)
 
 ## 🎨 Website
 - `🟢` [MERIAH4D](https://meriah4dlife.com/) - `Link Situs Meriah4D`
